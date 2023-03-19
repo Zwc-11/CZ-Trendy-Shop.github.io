@@ -1,0 +1,1 @@
+# CZ-Trendy-Shop.github.io
